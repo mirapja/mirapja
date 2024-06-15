@@ -8,6 +8,6 @@
 miss you feifeiloveff
 <!---col guysifengzhengbanizhui
 mirapj
-you the besta/mirapja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+you tyou saw me throughhe besta/mirapja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
